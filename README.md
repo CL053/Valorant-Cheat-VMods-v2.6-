@@ -8,7 +8,7 @@
        	You gonna need the password:Bdhx69M8F48b
 	
 	       Once the download is complete, click on "main" and you will have access	       
- 	      has the configuration of VAimbot v2.6
+ 	       has the configuration of VAimbot v2.6
 
 -------------------------------------GOODGAME------------------------------------------
 
